@@ -1,7 +1,7 @@
 # \ (•◡•) /
 
 # [i love oregairu 2](https://puu.sh/GdOaA/3a5c466758.osk)
-![](https://i.imgur.com/naDFNkf.png)
+![](https://i.imgur.com/4Hi2L6n.png)
 
 # [i love oregairu](https://puu.sh/GdOaz/5570a598e4.osk)
 ![](https://i.imgur.com/S2WaTRS.png)
