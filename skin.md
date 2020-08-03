@@ -1,6 +1,9 @@
 # \ (•◡•) /
 
-# [i love oregairu](https://puu.sh/G7IgD/55cecf45ed.osk)
+# [i love oregairu 2](https://puu.sh/GdOaA/3a5c466758.osk)
+![](https://i.imgur.com/naDFNkf.png)
+
+# [i love oregairu](https://puu.sh/GdOaz/5570a598e4.osk)
 ![](https://i.imgur.com/S2WaTRS.png)
 
 # [-             defalot tko edit](https://puu.sh/EQWiT/ba7d8e49b6.osk)
