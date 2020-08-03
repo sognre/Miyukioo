@@ -1,31 +1,19 @@
 # \ (•◡•) /
 
-# [i love oregairu 2](https://puu.sh/GdOaA/3a5c466758.osk)
+# [i love oregairu 2](https://sognare.s-ul.eu/l8mT8jWA)
 ![](https://i.imgur.com/4Hi2L6n.png)
 
-# [i love oregairu](https://puu.sh/GdOaz/5570a598e4.osk)
+# [i love oregairu](https://sognare.s-ul.eu/QMqtCEze)
 ![](https://i.imgur.com/S2WaTRS.png)
 
-# [-             defalot tko edit](https://puu.sh/EQWiT/ba7d8e49b6.osk)
+# [-             defalot tko edit](https://sognare.s-ul.eu/HYaVOkzU)
 ![](https://i.imgur.com/arLwlqY.jpg)
-
-# [-+-- non aspect](https://puu.sh/EQWgK/c6bf2287fb.osk)
-![](https://i.imgur.com/DZqufrq.jpg)
 
 # [- spring x tko skin (by - Dark - & weak)](https://skins.osuck.net/index.php?newsid=1154)
 ![](https://skins.osuck.net/uploads/posts/2019-12/1575814223_3.jpg)
 
-# [-   + casually mixing skins](https://puu.sh/EDrpE/9b60af1b1a.osk)
-![](https://i.imgur.com/9eMjgGn.png)
-
-# [-+#+Cabei+de+faze+V3 (- Best's Skin)](https://puu.sh/EAXf2/340643c0ef.osk)
-![](https://i.imgur.com/LS18cvd.jpg)
-
-# [- - +sognare path](https://puu.sh/EAX7f/9fec97c859.osk)
+# [- - +sognare path](https://sognare.s-ul.eu/EJfAMWwW)
 ![](https://i.imgur.com/I7ZTLE4.jpg)
 
-# [- - + low iq brainless](https://puu.sh/EAX7o/1b0105d897.osk)
-![](https://i.imgur.com/q2XaSXb.jpg)
-
-# [-+- def+a+lot](https://puu.sh/EAXmf/3eeeeda3da.osk)
+# [-+- def+a+lot](https://sognare.s-ul.eu/EJfAMWwW)
 ![](https://i.imgur.com/LuOWMXe.jpg)
