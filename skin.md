@@ -6,6 +6,9 @@
 # [i love oregairu](https://sognare.s-ul.eu/QMqtCEze)
 ![](https://i.imgur.com/S2WaTRS.png)
 
+# [natal](https://sognare.s-ul.eu/swbOCMTE)
+![](https://i.imgur.com/0aNlNFa.png)
+
 # [-             defalot tko edit](https://sognare.s-ul.eu/HYaVOkzU)
 ![](https://i.imgur.com/arLwlqY.jpg)
 
