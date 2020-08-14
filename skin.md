@@ -1,5 +1,9 @@
 # \ (•◡•) /
 
+# [aristia woe](https://sognare.s-ul.eu/NJEaSePo)
+![](https://i.imgur.com/G6fHh02.png)
+
+
 # [i love oregairu 2](https://sognare.s-ul.eu/l8mT8jWA)
 ![](https://i.imgur.com/4Hi2L6n.png)
 
