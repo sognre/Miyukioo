@@ -22,5 +22,5 @@
 # [- - +sognare path](https://sognare.s-ul.eu/EJfAMWwW)
 ![](https://i.imgur.com/I7ZTLE4.jpg)
 
-# [-+- def+a+lot](https://sognare.s-ul.eu/EJfAMWwW)
+# [-+- def+a+lot](https://sognare.s-ul.eu/xYWZIZsu)
 ![](https://i.imgur.com/LuOWMXe.jpg)
