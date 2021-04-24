@@ -2,6 +2,9 @@
 
 # [cursors](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
+# [i love oregairu](https://files.catbox.moe/32ztrv.osk)
+![](https://i.imgur.com/S2WaTRS.png)
+
 # [haema](https://sognare.s-ul.eu/ntN1lZGV)
 ![](https://i.imgur.com/GexvFSV.png)
 
@@ -10,9 +13,6 @@
 
 # [i love oregairu 2](https://sognare.s-ul.eu/l8mT8jWA)
 ![](https://i.imgur.com/4Hi2L6n.png)
-
-# [i love oregairu](https://sognare.s-ul.eu/QMqtCEze)
-![](https://i.imgur.com/S2WaTRS.png)
 
 # [natal](https://sognare.s-ul.eu/swbOCMTE)
 ![](https://i.imgur.com/0aNlNFa.png)
