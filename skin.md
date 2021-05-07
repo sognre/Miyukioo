@@ -2,7 +2,7 @@
 
 # if the skin doesnt have the original cursor from the screenshot check the folder or access the cursor link below
 
-# [cursors](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
+# [cursor](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
 # [i love oregairu](https://mega.nz/file/ZYJTFa7S#C-VgFkoFubxpXhBRGj0snr_ND-zjTQwzKRt2vUQ0yj8)
 ![](https://i.imgur.com/S2WaTRS.png)
