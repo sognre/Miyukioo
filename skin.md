@@ -5,13 +5,13 @@
 # [i love oregairu](https://mega.nz/file/ZYJTFa7S#C-VgFkoFubxpXhBRGj0snr_ND-zjTQwzKRt2vUQ0yj8)
 ![](https://i.imgur.com/S2WaTRS.png)
 
-# [defalot](https://sognare.s-ul.eu/xYWZIZsu)
+# [defalot](https://mega.nz/file/sUpWDDhZ#wPDxwIyweAtV4TunydBx5cRSPGbHqc4dEw3hITWzb90)
 ![](https://i.imgur.com/LuOWMXe.jpg)
 
 # [haema](https://mega.nz/file/ZFIjXKIR#7xHRBeQRd9NYbmGvI1uJdqHhW2fsdz-je-TgsLFbLVc)
 ![](https://i.imgur.com/GexvFSV.png)
 
-# [aristia woe](https://sognare.s-ul.eu/NJEaSePo)
+# [aristia woe](https://mega.nz/file/sUpWDDhZ#wPDxwIyweAtV4TunydBx5cRSPGbHqc4dEw3hITWzb90)
 ![](https://i.imgur.com/G6fHh02.png)
 
 # [i love oregairu 2](https://mega.nz/file/1NR1xCoS#zdum8tqN0Siy-_-_PWgJ4jTEVkOagpYfFgoXLCKnfxQ)
