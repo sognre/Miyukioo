@@ -1,6 +1,6 @@
 # \ (•◡•) /
 
-# if the skin doesnt have the cursor from the original screenshot check the folder or access the cursor folder link below
+# if the skin doesnt have the original cursor from the screenshot check the folder or access the cursor link below
 
 # [cursors](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
