@@ -7,7 +7,7 @@
 # [i love oregairu](https://mega.nz/file/ZYJTFa7S#C-VgFkoFubxpXhBRGj0snr_ND-zjTQwzKRt2vUQ0yj8)
 ![](https://i.imgur.com/S2WaTRS.png)
 
-# [defalot](https://mega.nz/file/sUpWDDhZ#wPDxwIyweAtV4TunydBx5cRSPGbHqc4dEw3hITWzb90)
+# [defalot](https://mega.nz/file/0AI1hYjA#HkIKccUPLI9lA5S2IUeLZkQ3cGbHYBvugyhZdFk-f_Y)
 ![](https://i.imgur.com/LuOWMXe.jpg)
 
 # [haema](https://mega.nz/file/ZFIjXKIR#7xHRBeQRd9NYbmGvI1uJdqHhW2fsdz-je-TgsLFbLVc)
