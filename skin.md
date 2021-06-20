@@ -1,6 +1,4 @@
-# \ (•◡•) /
-
-# 
+# o(*￣▽￣*)o
 
 # [cursor](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
