@@ -17,6 +17,9 @@
 # [i love oregairu 2](https://mega.nz/file/1NR1xCoS#zdum8tqN0Siy-_-_PWgJ4jTEVkOagpYfFgoXLCKnfxQ)
 ![](https://i.imgur.com/4Hi2L6n.png)
 
+# [001sogfish](https://mega.nz/file/xc4UgYqA#nrEWEElQA0jaoIVLA7_064huxhdur1nK43KZdfPuLpE)
+![](https://i.imgur.com/CnAJVU3.png)
+
 # [natal](https://mega.nz/file/9AJ1AKbL#IFNFVr_fIvX5SL7hw8RRlasxsqAzDlVTUxq-9xlkKMs)
 ![](https://i.imgur.com/0aNlNFa.png)
 
