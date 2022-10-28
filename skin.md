@@ -20,6 +20,9 @@
 # [001sogfish](https://mega.nz/file/xc4UgYqA#nrEWEElQA0jaoIVLA7_064huxhdur1nK43KZdfPuLpE)
 ![](https://i.imgur.com/CnAJVU3.png)
 
+# [ddddnare](https://mega.nz/file/gIpyCYrK#zdzoJ-QlGvJSfaZ4Njvf2ZbQs-hmlJbPrEANRndCTr4)
+![](https://i.imgur.com/Lpouwt5.png)
+
 # [natal](https://mega.nz/file/9AJ1AKbL#IFNFVr_fIvX5SL7hw8RRlasxsqAzDlVTUxq-9xlkKMs)
 ![](https://i.imgur.com/0aNlNFa.png)
 
