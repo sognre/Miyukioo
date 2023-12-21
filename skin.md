@@ -4,7 +4,7 @@
 
 Discord: alimohammed2006
 
-Twitter: sognre
+[Twitter](https://twitter.com/sognre)
 
 DM me if there is something missing or broken
 
