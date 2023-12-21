@@ -26,7 +26,7 @@ DM me if there is something missing or broken
 # [i love oregairu](https://mega.nz/file/tZQ1VAbT#dMc7PBc5lYM5NLhMvYvFmjK4dhmeA1zNVeqoeIhkG34)
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187221257633144854/image.png?ex=659618f5&is=6583a3f5&hm=3d94f14f809e2f670d0a0beb8c08a3ae43ecc7e4f4f156c98f758f8e5461f51e&)
 
-# [haema]([https://mega.nz/file/ZFIjXKIR#7xHRBeQRd9NYbmGvI1uJdqHhW2fsdz-je-TgsLFbLVc](https://mega.nz/file/5EQDGJIT#QHc_JGjB7rgSy1Qzb5dYtq5LVWc15UNwXlO3EJpAru4))
+# [haema](https://mega.nz/file/5EQDGJIT#QHc_JGjB7rgSy1Qzb5dYtq5LVWc15UNwXlO3EJpAru4)
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187221691978498138/image.png?ex=6596195c&is=6583a45c&hm=a0f8f572fc94130034d91116d8aa814bf4aa0ad65344679989670076d087774a&)
 
 # [aristia woe](https://mega.nz/file/sUpWDDhZ#wPDxwIyweAtV4TunydBx5cRSPGbHqc4dEw3hITWzb90)
