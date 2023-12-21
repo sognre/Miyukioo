@@ -4,7 +4,7 @@
 
 # [aristianare {mania skin included}](https://mega.nz/file/EBBTXJqC#m_U2oZ7kn4o4vHmA4QLfm8owOl_1-VWMtETqq22Rthw)
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187219426102231150/image.png?ex=65961740&is=6583a240&hm=932ab408805d4c220970b2f1bc925f983180b0b94b47bad6c96b58c207292e4a&)
-(https://cdn.discordapp.com/attachments/705068055306174485/1187219144014319796/image.png?ex=659616fd&is=6583a1fd&hm=40e51637d94a0c16ec907683a3e4bf67bfccca0e4e959953ae47b36aa71f09f8&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187219144014319796/image.png?ex=659616fd&is=6583a1fd&hm=40e51637d94a0c16ec907683a3e4bf67bfccca0e4e959953ae47b36aa71f09f8&)
 
 # [i love oregairu](https://mega.nz/file/ZYJTFa7S#C-VgFkoFubxpXhBRGj0snr_ND-zjTQwzKRt2vUQ0yj8)
 ![](https://i.imgur.com/S2WaTRS.png)
