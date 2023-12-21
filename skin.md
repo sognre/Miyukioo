@@ -1,6 +1,6 @@
 # o(*￣▽￣*)o
 
-#Socials
+# Socials
 
 Discord: alimohammed2006
 
