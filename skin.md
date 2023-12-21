@@ -1,6 +1,6 @@
 # o(*￣▽￣*)o
 
-#Socials:
+Socials:
 Discord: alimohammed2006
 Twitter: sognre
 DM me if there is something missing or broken
