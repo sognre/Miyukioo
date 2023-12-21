@@ -1,8 +1,11 @@
 # o(*￣▽￣*)o
 
-Socials:
+#Socials
+
 Discord: alimohammed2006
+
 Twitter: sognre
+
 DM me if there is something missing or broken
 
 # [cursor](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
