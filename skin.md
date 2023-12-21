@@ -1,5 +1,10 @@
 # o(*￣▽￣*)o
 
+#Socials:
+Discord: alimohammed2006
+Twitter: sognre
+DM me if there is something missing or broken
+
 # [cursor](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
 # [aristianare (mania skin included)](https://mega.nz/file/EBBTXJqC#m_U2oZ7kn4o4vHmA4QLfm8owOl_1-VWMtETqq22Rthw)
