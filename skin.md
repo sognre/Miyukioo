@@ -2,7 +2,7 @@
 
 # Socials
 
-Discord: alimohammed2006
+Discord: sognre
 
 [Twitter](https://twitter.com/sognre)
 
