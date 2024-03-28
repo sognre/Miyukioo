@@ -11,8 +11,8 @@ DM me if there is something missing or broken
 # [cursor](https://mega.nz/folder/AUICkZLT#EpPp8sVVMa_Rnq7DSfN-sA)
 
 # [aristianare (mania skin included)](https://mega.nz/file/EBBTXJqC#m_U2oZ7kn4o4vHmA4QLfm8owOl_1-VWMtETqq22Rthw)
-![](https://cdn.discordapp.com/attachments/705068055306174485/1187219426102231150/image.png?ex=65961740&is=6583a240&hm=932ab408805d4c220970b2f1bc925f983180b0b94b47bad6c96b58c207292e4a&)
-![](https://cdn.discordapp.com/attachments/705068055306174485/1187219144014319796/image.png?ex=659616fd&is=6583a1fd&hm=40e51637d94a0c16ec907683a3e4bf67bfccca0e4e959953ae47b36aa71f09f8&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187219426102231150/image.png?ex=66174a40&is=6604d540&hm=39d4ad94c62e7ff692be76fabd712285f9193697f97025b8e8ef714b02907aec&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187219144014319796/image.png?ex=661749fd&is=6604d4fd&hm=e7c51026b6c2841f0671947b6853d617141d4744f237d78b22ee13f512f75bb0&)
 
 # [ddddnare](https://mega.nz/file/0AwQgJZZ#0aLvhQ1jf0uqUtJ8sHaw9CJIGcu0Q6Jz6g183_5950Q)
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187220123614969876/image.png?ex=659617e6&is=6583a2e6&hm=9156e77194e1596901399e2f849adf420f48c1d3004b069ebde74057ab1a6165&)
