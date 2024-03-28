@@ -15,13 +15,13 @@ DM me if there is something missing or broken
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187219144014319796/image.png?ex=661749fd&is=6604d4fd&hm=e7c51026b6c2841f0671947b6853d617141d4744f237d78b22ee13f512f75bb0&)
 
 # [ddddnare](https://mega.nz/file/0AwQgJZZ#0aLvhQ1jf0uqUtJ8sHaw9CJIGcu0Q6Jz6g183_5950Q)
-![](https://cdn.discordapp.com/attachments/705068055306174485/1187220123614969876/image.png?ex=659617e6&is=6583a2e6&hm=9156e77194e1596901399e2f849adf420f48c1d3004b069ebde74057ab1a6165&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187220123614969876/image.png?ex=66174ae6&is=6604d5e6&hm=e56dea3c05199e9aa43edb882456257ce3e3b4e6ac552ff907d9f3f099bbbc60&)
 
 # [kantokunare](https://mega.nz/file/sdgwwLCL#_DanQ6td839zcpqxTBzIixshPTX-HLnuSrg5WyRB_-Y)
-![](https://cdn.discordapp.com/attachments/705068055306174485/1187222813925453834/image.png?ex=65961a68&is=6583a568&hm=7e8e7186cbba360b173bb7dac17624c0c7b68123ae40fb3e730d36f94d4d424e&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187222813925453834/image.png?ex=66174d68&is=6604d868&hm=513f96b8638f35a95195a142dd617a6f398d61ec6f44f6c05de27ff057148470&)
 
 # [def+a+lot](https://mega.nz/file/0JQSCbIb#vxIDQGOtCPapmwk13A6IHJFDNmbhp5rIItehlBd1Xtg)
-![](https://cdn.discordapp.com/attachments/705068055306174485/1187220688575152128/image.png?ex=6596186d&is=6583a36d&hm=2e8fddbfcf45609f5e43a1aa56584e4a640c7955b0b26892ddddc28da36bd217&)
+![](https://cdn.discordapp.com/attachments/705068055306174485/1187220688575152128/image.png?ex=66174b6d&is=6604d66d&hm=44b01b05457baf232445cc6fbdcd356d6af947c297e40df5eb12efb91b08a552&)
 
 # [i love oregairu](https://mega.nz/file/tZQ1VAbT#dMc7PBc5lYM5NLhMvYvFmjK4dhmeA1zNVeqoeIhkG34)
 ![](https://cdn.discordapp.com/attachments/705068055306174485/1187221257633144854/image.png?ex=659618f5&is=6583a3f5&hm=3d94f14f809e2f670d0a0beb8c08a3ae43ecc7e4f4f156c98f758f8e5461f51e&)
